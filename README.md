@@ -189,7 +189,7 @@ https://youtu.be/MmDyxE7-kG8
 
 **Dumebi Obuh**
 
-Aspiring IT Support Specialist | Cybersecurity Professional
+IT Support Specialist | Cybersecurity Professional
 
 GitHub:
 
