@@ -1,0 +1,1 @@
+# it-support-ticket-012-system-information-hardware-inspection
